@@ -59,4 +59,4 @@ English (B2) · Russian (native) · Mandarin (B1)
 
 ---
 
-*Open to remote contracts and full-time roles. Available 40h/week. UTC+5.*
+*Open to remote contracts: part-time and full-time. Flexible hours, can scale up to 40h/week for the right role. UTC+5.*
